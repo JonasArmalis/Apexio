@@ -1,1 +1,1 @@
-Outdated
+Daily submit
